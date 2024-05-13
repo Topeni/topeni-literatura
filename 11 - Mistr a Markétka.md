@@ -23,9 +23,9 @@
 ## Michail Afanasjevič Bulgakov
 - 1891 (Kyjev) - 1940 (Moskva) (Selhání ledvin)
 - Ruský a Sovětský prozaik, dramatik, lékař
-- Jeho sourozenci bojovali v ruské občanské válce (1918-1920) na straně bílé armády - straně proti carství, poté emigrovali do Paříže
 - V roce 1916 absolvoval lékařskou fakultu Kyjevské univerzity
 	- Poté šel jako polní doktor do WW1 na Kavkaz
+- Jeho sourozenci bojovali v ruské občanské válce (1918-1920) na straně bílé armády - straně proti carství, poté emigrovali do Paříže
 - Na Kavkazu také začal poté pracovat jako novinář
 - Píše zejména dramata, většina z nich režim cenzuroval a tak zůstala v šuplíku
 - Pár z nich ovšem vyšlo, jedno z nich dokonce Stalinovo oblíbené - Dny Turbinových
