@@ -27,11 +27,10 @@
 - V roce 1916 absolvoval lékařskou fakultu Kyjevské univerzity
 	- Poté šel jako polní doktor do WW1 na Kavkaz
 - Na Kavkazu také začal poté pracovat jako novinář
-- Přesto, že byl za Stalinského režimu populární, mu nebylo dovoleno navštívit bratry
 - Píše zejména dramata, většina z nich režim cenzuroval a tak zůstala v šuplíku
 - Pár z nich ovšem vyšlo, jedno z nich dokonce Stalinovo oblíbené - Dny Turbinových
 	- Což mu nejspíše mu zachránilo život v roce 1937, kdy v Rusku byli vražděni a vězněni autoři, co nepsali dle ustanoveného směru
-- Chtěl se v roce 1938 podívat za svými bratry do Paříže, napsal dopis Stalinovi, ten mu zavolal a Bulgakov místo toho přijal pracovní pozici v 
+- Přesto, že byl za Stalinského režimu populární, mu nebylo dovoleno navštívit bratry
 - Za svůj život se třikrát oženil
 	- 1. před WW1
 	- naposledy v roce 1932 s Jelenou Sergejevnou Bulgakovovou
@@ -41,7 +40,7 @@
 - Další díla - U všech problém s rokem napsání/vydání - cenzura způsobila, že díla vyšla oficiálně až o dekády později
 	- Osudná Vejce/Paprsek Života - 1924 - Jeho první vydané dílo -  fantastická povídka
 	- Bílá Garda - 1924 - Psychologická Novela o rodině Turbinových z prostředí Kyjeva, kde se mění politická situace  
-	- Dny Turbinových - 1927 - Drama, navazuje na Bílou Gardu, zachycuje osud bratrů z Bílé Gardy a jejich 
+	- Dny Turbinových - 1927 - Drama, navazuje na Bílou Gardu, zachycuje osud bratrů z Bílé Gardy
 	- Mistr a Markétka - 1940 (Poslední verze) - Román s Faustovskými motivy
 - Důležité zmínit 
 	- Boris Pasternak - Doktor Živágo 
