@@ -87,7 +87,7 @@ nuh uhh
 
 ## Vypravěč
 - -ich forma
-- osobní
+- vypravěč postava
 - Typy promluv
     - Monology z Tóruovy hlavy i dialogy
     - Také pasáže v dopisech
