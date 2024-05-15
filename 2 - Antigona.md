@@ -99,7 +99,7 @@ nuh uh
 - Jednoty
 - Dělení dle aristotela
 	- Expozice - Představení problému - kdo pohřbí Polyneika bude ukamenován - zaházen malými kameny a poté pohřben velkým kamenem
-	- Kolize - Zjištění, že Antigona chtěla pohřbít Polyneika
+	- Kolize - Zjištění, že Antigona pohřbila Polyneika
 	- Krize - Kréon chce Antigonu odsoudit k smrti
 	- Peripetie - Věštěc Teiresiás řekne Kreóntovi, že dělá chybu, ale že stále může situaci napravit, ten se o to pokusí, chce Antigonu omilostnit
 	- Katastrofa - Sebevražda Antigony, Haimona a Eurydiké - Prokletí Kreóna
